@@ -1,1 +1,0 @@
-# enesbugra_sen_YODA_OTONOM_YAZILIM
