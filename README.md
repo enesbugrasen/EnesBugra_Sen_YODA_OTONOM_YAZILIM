@@ -1,0 +1,1 @@
+# ad_soyad_YODA_OTONOM_YAZILIM
